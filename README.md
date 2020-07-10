@@ -1,4 +1,10 @@
-### Hi there 👋
+## You _found_ me!
+
+• App Developer in @elementary  
+• 0×1B Orbits around Sol  
+• http://patreon.com/lainsce  
+• Uses Nataniev Time System  
+• #merveilles
 
 <!--
 **lainsce/lainsce** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
