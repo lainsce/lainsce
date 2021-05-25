@@ -1,6 +1,6 @@
 ## You _found_ me!
 
-• App Developer in GNOME 
+• App Developer in GNOME  
 • 0×1B Orbits around Sol  
 • http://patreon.com/lainsce  
 • Uses Nataniev Time System  
