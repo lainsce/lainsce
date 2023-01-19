@@ -2,5 +2,5 @@
 
 • App Developer in GNOME  
 • 0×1C Orbits around Sol  
-• https://ko-fi.com/lainsce
+• https://www.patreon.com/lainsce  
 • #merveilles
